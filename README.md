@@ -1,1 +1,0 @@
-# butun_hayvanlara_binme
